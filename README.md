@@ -1,1 +1,4 @@
-# the-second-coming-of-gluttony
+# The Second Coming of Gluttony
+C’était un addict aux jeux, un raté, une personne méprisable. Mais, un rêve fugace, qui pourrait bien ne pas en être un du tout, réveille des sens qu’il avait jusqu’alors perdu. Possédant une capacité vraiment unique, il va se servir de celle-ci et des restes de son rêve pour forger sa destinée dans un monde maintenant connu sous le nom du Paradis Perdu.
+
+C’était un toxicomane, un perdant, un être humain méprisable. Mais, un rêve éphémère qui n’était peut-être pas du tout un rêve réveille ses sens autrefois perdus. Possédant une capacité très unique, il utilise cette dernière pour forger son chemin dans ce monde appelé Paradis Perdu.
